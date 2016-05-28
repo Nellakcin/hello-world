@@ -3,4 +3,4 @@
 
 Hello Hamsters!
 
-I enjoj Chimichangas, large guns and revenge.
+I enjoy Chimichangas, large guns and revenge.
